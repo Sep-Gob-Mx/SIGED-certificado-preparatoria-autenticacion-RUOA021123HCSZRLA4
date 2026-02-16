@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RUOA021123HCSZRLA4
+RUOA021123HCSZRLA4
